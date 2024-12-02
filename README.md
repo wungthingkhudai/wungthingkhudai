@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @wungthingkhudai
+- 👀 I’m interested in SpaceX
+- 🌱 I’m currently learning how to make Crocodile Sauce
+- 💞️ I’m looking to collaborate on Dancing
+- 📫 How to reach me ...RUN
+- 😄 Pronouns: ...TF
+- ⚡ Fun fact: ...I eat Tomato seeds
+--->
